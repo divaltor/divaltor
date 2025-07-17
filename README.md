@@ -5,4 +5,4 @@ If you are interested in the tech stuff and especially in the system programming
 Contact:
 
 - [divaltor@pm.me](mailto:divaltor@pm.me)
-- Twitter (X): [divaltor](https://x.com/divaltor_)]
+- Twitter (X): [divaltor](https://x.com/divaltor_)
